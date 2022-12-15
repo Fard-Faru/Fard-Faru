@@ -18,8 +18,6 @@ Feel free to look around and learn something new about me and my passions!
 
 👀 I'm currently looking for Summer 2023 Internhips
 
-🧠 I'm currently learning to develop a stand alone game
-
 👯‍♀️ I'm looking to collaborate on open source projects
 
 ⚡️ Fun fact: I love to play baseball and cricket

@@ -12,7 +12,7 @@ Feel free to look around and learn something new about me and my passions!
 
 👨‍💻 Software Engineer with professional experience leading teams to develop solutions
  
-🎓 Computer Science and Statiscs Major Student @ University Of Toronto - St. George
+🎓 Computer Science and Statistics Major Student @ University Of Toronto - St. George
 
 😀 I aspire to work in a passion driven team to develop solutions which will decorate everyday lives
 

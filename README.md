@@ -12,7 +12,7 @@ Feel free to look around and learn something new about me and my passions!
 
 👨‍💻 Software Enginee @ Bell
  
-🎓 Computer Science and Statistics Major Student @ University Of Toronto - St. George
+🎓 Computer Science and Statistics Major Student @ University Of Toronto
 
 😀 I aspire to work in a passion driven team to develop solutions which will decorate everyday lives
 

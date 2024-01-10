@@ -10,7 +10,7 @@ Feel free to look around and learn something new about me and my passions!
 
 👋🏽 Hello! My name is Fardin!
 
-👨‍💻 Software Enginee @ Bell
+👨‍💻 Software Engineer @ Bell
  
 🎓 Computer Science and Statistics Major Student @ University Of Toronto
 

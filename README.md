@@ -16,7 +16,7 @@ Feel free to look around and learn something new about me and my passions!
 
 😀 I aspire to work in a passion driven team to develop solutions which will decorate everyday lives
 
-👀 I'm currently looking for Summer 2024 Internhips
+👀 I'm currently looking for Summer 2025 Internhips
 
 👯‍♀️ I'm looking to collaborate on open source projects
 
